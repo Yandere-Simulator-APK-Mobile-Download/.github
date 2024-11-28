@@ -63,3 +63,5 @@
     <li>Develop relationships with classmates</li>
     <li>Navigate complex social situations</li>
 </ul>
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Yandere-Simulator-APK-Mobile-Download)
