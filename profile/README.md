@@ -1,7 +1,7 @@
 <h1>Yandere Simulator APK Download</h1>
 <img src="https://droidcoast.com/wp-content/uploads/2024/09/image-12.png">
 <p>Yandere Simulator Mobile Apk is a stealth game about stalking a boy and secretly eliminating any girl who has a crush on him, while maintaining the image of an innocent schoolgirl.</p>
-<h2><a href="https://droidcoast.com/yandere-simulator-mobile-apk/">Yandere Simulator APK for Android - Download</a></h2>
+<h2><a href="https://doctortweak.com/app/games.html">Yandere Simulator APK for Android - Download</a></h2>
 
 <h2>About Yandere Simulator APK</h2>
 <p>The Yandere Simulator APK is available on both Android and iOS platforms. Players can dive into the thrilling world of Yandere Simulator, which features a high school girl engaged in dark activities, including eliminating rivals and capturing compromising images. The game's solo developer often garners significant attention on YouTube for updates and gameplay videos, despite its recent exclusion from Twitch.</p>
